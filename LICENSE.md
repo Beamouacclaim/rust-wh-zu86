@@ -1,4 +1,4 @@
-
+Raro rust-trucos WH es el mejor rust-trucos WH con apuntado silencioso y muerte instantánea. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
